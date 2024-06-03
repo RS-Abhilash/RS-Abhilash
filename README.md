@@ -15,7 +15,7 @@
 - 👀 Ready to learn new things..  
   
 
-- 👋 Let's get connect on [Linkedin] (https://www.linkedin.com/in/abhilashsharma06/)  
+- 👋 Let's get connect on [Github Profilinator](https://github.com/rishavanand/github-profilinator)
   
 
 <br/>  
